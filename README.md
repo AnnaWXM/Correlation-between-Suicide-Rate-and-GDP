@@ -1,0 +1,1 @@
+# Correlation-between-Suicide-Rate-and-GDP
